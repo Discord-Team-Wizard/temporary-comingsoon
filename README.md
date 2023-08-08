@@ -5,4 +5,4 @@
 
 
 다들 이 노래 들어주세요!
-[![Another World](https://i.ytimg.com/vi/8KTFf2X-ago/maxresdefault.jpg)](https://youtu.be8KTFf2X-ago)
+[![Another World](https://i.ytimg.com/vi/8KTFf2X-ago/maxresdefault.jpg)](https://youtu.be/8KTFf2X-ago)
